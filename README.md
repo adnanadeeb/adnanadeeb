@@ -3,7 +3,6 @@
 - 🌱 I’m currently learning PYTHON .
 - 💞️ I’m looking to collaborate on Projects or whatever in Need 🥰
 - 📫 How to reach me , here's my mail adnanadeeb14@gmail.com
-- 😄 Pronouns: xag/xer
 - ⚡ Fun fact: Act autistic when Depressed ...
 
 <!---
